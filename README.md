@@ -2,5 +2,4 @@
 
 Meu nome  é Pedro, eu sou estudante  de informatica do CTISM - UFSM
 
-estou pensando seriamente em largar tudo e vender minha arte na praia (é serio)
-
+estou pensando seriamente em largar tudo e vender minha arte na praia (é sério tmj)
