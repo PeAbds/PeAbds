@@ -21,4 +21,5 @@ Não que se importe, agora vou listar algumas curiosidades bacaninhas sobre mim 
 - estamos mais perto de 2050 do que de 1990
 
 
-![N](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQO63Lf85-Z08zOIg0JmjE5Y4c7nDu3nEqKl3SfbgtXL07dzuTL5yY4P7Jg8UjMfGOaB4Q&usqp=CAU)
+![N](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRXDE3NVCBlHb4qJpzDl2uS4qN4dsE6BHx6kzIXbez-7UER3qfJWLEEjsQjDTSnt5E4JeU&usqp=CAU)
+era pra ser uma capivara de jaqueta mas eu não achei ;-;
